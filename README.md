@@ -1,0 +1,1 @@
+# Website-Trading-Chart-dengan-Analisa-Teknikal-dan-Fundamental.zip
